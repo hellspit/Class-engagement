@@ -10,4 +10,4 @@ Whether you're a teacher, researcher, or student — this might help you underst
 ---
 
 Made with ❤️ and lots of ☕  
-![Alt text](https://drive.google.com/file/d/1Zd_v7xo0emfbfPOO5C1oEZfO5AquJVN-/view)
+![Alt text](https://drive.google.com/uc?export=view&id=1Zd_v7xo0emfbfPOO5C1oEZfO5AquJVN-)
