@@ -10,4 +10,4 @@ Whether you're a teacher, researcher, or student — this might help you underst
 ---
 
 Made with ❤️ and lots of ☕  
-![Alt text]('data/guts-artwork-3840x2160-21418.jpg')
+![Alt text](https://drive.google.com/file/d/1Zd_v7xo0emfbfPOO5C1oEZfO5AquJVN-/view)
